@@ -1,0 +1,1 @@
+# shaxboz2505.github.io
