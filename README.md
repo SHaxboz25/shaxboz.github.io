@@ -1,1 +1,1 @@
-# shaxboz2505.github.io
+#Shaxboz
